@@ -1,1 +1,0 @@
-# TechLifestyleMagazine-Lab2-JuvanMariCasas
